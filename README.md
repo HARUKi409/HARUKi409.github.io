@@ -19,7 +19,7 @@
 
 - 📄 PuppyPanKumitateCenter [INSTAGRAM @puppypan_kumitatesenta](https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr)
 
-- ⚡ MH荒野好玩 **历战黑蚀龙好难打**
+- ⚡ 苦学Coding **艺术生唯一出路转码**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
