@@ -19,7 +19,7 @@
 
 - 📄 PuppyPanKumitateCenter [https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr](https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr)
 
-- ⚡ MH天下第一 **黑蚀龙好难打**
+- ⚡ MH真好玩 **历战黑蚀龙好难打**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
