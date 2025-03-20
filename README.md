@@ -9,17 +9,17 @@
 
 - 🏫 I’m currently studying in [School of the Art Institute of Chicago](https://www.saic.edu)
 
-- 👨‍💻 All of my school projects are available at [https://www.instagram.com/mega409__/profilecard/?igsh=eHA1YmlkOXkzbHUy](https://www.instagram.com/mega409__/profilecard/?igsh=eHA1YmlkOXkzbHUy)
+- 👨‍💻 All of my school projects are available at [INSTAGRAM @mega409_](https://www.instagram.com/mega409__/profilecard/?igsh=eHA1YmlkOXkzbHUy)
 
-- 💜 Original Character Update [https://www.xiaohongshu.com/user/profile/5b02a25011be10505c6a526c?xsec_token=YBd9V3cVgJHiKp0MDbDVwTsInebWFIfl1D2_gMEtp_5mc=&xsec_source=app_share&xhsshare=CopyLink&appuid=5b02a25011be10505c6a526c&apptime=1742410742&share_id=4aa97f7554f04c38a9443d410337ba83](https://www.xiaohongshu.com/user/profile/5b02a25011be10505c6a526c?xsec_token=YBd9V3cVgJHiKp0MDbDVwTsInebWFIfl1D2_gMEtp_5mc=&xsec_source=app_share&xhsshare=CopyLink&appuid=5b02a25011be10505c6a526c&apptime=1742410742&share_id=4aa97f7554f04c38a9443d410337ba83)
+- 💜 Original Character [RedNote @泪水淋湿猪脚饭](https://www.xiaohongshu.com/user/profile/5b02a25011be10505c6a526c?xsec_token=YBd9V3cVgJHiKp0MDbDVwTsInebWFIfl1D2_gMEtp_5mc=&xsec_source=app_share&xhsshare=CopyLink&appuid=5b02a25011be10505c6a526c&apptime=1742410742&share_id=4aa97f7554f04c38a9443d410337ba83)
 
 - 💬 Ask me about **what ever you want**
 
 - 📫 How to reach me **harukihyper@gmail.com**
 
-- 📄 PuppyPanKumitateCenter [https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr](https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr)
+- 📄 PuppyPanKumitateCenter [INSTAGRAM @puppypan_kumitatesenta](https://www.instagram.com/puppypan_kumitatesenta?igsh=MTVrZ2FjcjE1M3BhMw%3D%3D&utm_source=qr)
 
-- ⚡ MH真好玩 **历战黑蚀龙好难打**
+- ⚡ MH荒野好玩 **历战黑蚀龙好难打**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
